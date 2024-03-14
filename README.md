@@ -1,2 +1,0 @@
-# Oddvar-Folkestad-
-Prosjekter 
